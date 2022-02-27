@@ -8,6 +8,8 @@ steps on using the bookmarklet
 4. type in "javascript:" then paste the code
 5. save, and your bookmarklet is done!
 
+or just simply type in javascript: (script code) in the search bar during a blooket and enter.
+
 these things are being updated daily when they break.
 please note im not the owner of this blooket exploits and all the credits go to glizzxy. i am simply just a person who just wants to share the hacks.
 i am on mostly on github so you can reach me in the issues tab if anything goes wrong.
