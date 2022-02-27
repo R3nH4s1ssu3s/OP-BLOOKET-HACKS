@@ -16,4 +16,5 @@ i am on mostly on github so you can reach me in the issues tab if anything goes 
 if glizzxy wants me to delete this, i'm afraid i have to do so.
 anyways, enjoy while this lasts.
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQcGhyaUUj6FJdS-G3ScTcDsbvUTmesAwzsx7nShNJoX5cSLadSmfL_aB_SkECKn_5utGw&amp;usqp=CAU" alt="Pin by maylelogo minmin on Tainá | Manga watercolor, Phone themes, I have  no friends"/>![image](https://user-images.githubusercontent.com/99570560/155893066-88cb84a1-14b3-431b-aeec-e856c4793192.png)
+(https://user-images.githubusercontent.com/99570560/155893083-437af25d-274b-43c9-a7c0-d106092503ec.png)
+
