@@ -15,3 +15,4 @@ please note im not the owner of this blooket exploits and all the credits go to 
 i am on mostly on github so you can reach me in the issues tab if anything goes wrong.
 if glizzxy wants me to delete this, i'm afraid i have to do so.
 anyways, enjoy while this lasts.
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQcGhyaUUj6FJdS-G3ScTcDsbvUTmesAwzsx7nShNJoX5cSLadSmfL_aB_SkECKn_5utGw&amp;usqp=CAU" alt="Pin by maylelogo minmin on Tainá | Manga watercolor, Phone themes, I have  no friends"/>![image](https://user-images.githubusercontent.com/99570560/155893053-e8b77d65-8350-4511-baa8-40015519d422.png)
