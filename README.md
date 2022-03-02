@@ -8,8 +8,8 @@ steps on using the bookmarklet
 4. type in "javascript:" then paste the code
 5. save, and your bookmarklet is done!
 or just watch this.
-https://user-images.githubusercontent.com/99570560/156405518-144def98-0758-4661-bf42-7535fe0e3c49.mp4
 
+https://user-images.githubusercontent.com/99570560/156405518-144def98-0758-4661-bf42-7535fe0e3c49.mp4
 
 
 OR just simply type in javascript: (script code) in the search bar during a blooket and enter.
