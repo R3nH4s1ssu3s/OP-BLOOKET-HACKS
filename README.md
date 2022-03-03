@@ -1,5 +1,6 @@
 # blookethack-alt
 blooket hacks alt!
+For updating the scripts, I go to the schoolcheats.net/blooket web (check it out!) and use the updated scripts.
 
 steps on using the bookmarklet
 1. right click the bookmark tab
