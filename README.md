@@ -1,5 +1,6 @@
 # RESTORED-blookethacks
 basically another blooket hacks alt
+
 For updating the scripts, I go to the schoolcheats.net/blooket web (check it out!) and use the updated scripts.
 
 If anything goes wrong, please notify me via issues and I will fix it right away!!
