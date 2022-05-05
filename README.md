@@ -1,4 +1,6 @@
 # RESTORED-blookethacks
+ALL THE HACKS ARE NOT MINE!! THEY ARE SIMPLY REPOSTED HERE SO PLEASE DO NOT CREDIT ME!
+
 basically another blooket hacks alt
 
 For updating the scripts, I go to the schoolcheats.net/blooket web (check it out!) and use the updated scripts.
@@ -16,8 +18,6 @@ or just watch this.
 https://user-images.githubusercontent.com/99570560/156405518-144def98-0758-4661-bf42-7535fe0e3c49.mp4
 
 
-please note im not the owner of this blooket exploits and all the credits go to glizzxy. i am simply
-just a person who just wants to share the hacks.
 
 i am on mostly on github so you can reach me in the issues tab if anything goes wrong.
 
